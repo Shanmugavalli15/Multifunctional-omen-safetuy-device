@@ -1,0 +1,1 @@
+# Multifunctional-omen-safetuy-device
